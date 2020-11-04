@@ -1,1 +1,2 @@
-  12 задание https://sun9-69.userapi.com/VoPOhIahFQs5Twmh_jsXZEPgeqD6laszGp4vuQ/-32gWR46OSI.jpg
+
+![Изображение сделано 04 11 2020 в 18 07 — копия](https://user-images.githubusercontent.com/71371018/98149651-89e52180-1ede-11eb-92d4-923abf70d5a5.jpg)

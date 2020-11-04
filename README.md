@@ -1,1 +1,1 @@
-https://sun9-69.userapi.com/VoPOhIahFQs5Twmh_jsXZEPgeqD6laszGp4vuQ/-32gWR46OSI.jpg
+  12 задание https://sun9-69.userapi.com/VoPOhIahFQs5Twmh_jsXZEPgeqD6laszGp4vuQ/-32gWR46OSI.jpg

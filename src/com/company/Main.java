@@ -1,5 +1,4 @@
-package com.company;
-import org.w3c.dom.ls.LSOutput;
+package ru.vsu.cs.garaba;
 
 import java.util.Scanner;
 public class Main {
